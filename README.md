@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @im-dobe
+- 👀 I’m interested in ...making games
+- 🌱 I’m currently learning ...basic code
+- 💞️ I’m looking to collaborate on ...a major 3d game
+- 📫 How to reach me ...Instagram: sun.dobe
